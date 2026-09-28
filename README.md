@@ -1,0 +1,2 @@
+# premium-windmill-001-windmill-sail-and-cap-repair-p
+Tired of losing track of sail and cap repairs across sticky notes and spreadsheets? The Windmill Sail and Cap Repair Planner centralizes every detail in one clean Notion workspace.  Specifically designed for windmill enthusiasts, this template turns repair tracking from a chaotic chore into a streamlined system. With dedicated databases for sail co
